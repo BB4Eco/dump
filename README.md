@@ -1,6 +1,9 @@
 dump
 ====
 
+#### 33 Books Every Entrepreneur Should Read
+- http://www.businessinsider.com/best-books-for-entrepreneurs-2014-9
+
 #### 10 Books Every Entrepreneur Must Read Before Starting Up
 - http://www.inc.com/laura-montini/infographic/10-books-every-aspiring-entrepreneur-must-read.html?cid=sf01002
 
