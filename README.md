@@ -1,6 +1,9 @@
 dump
 ====
 
+#### 10 Books Every Entrepreneur Must Read Before Starting Up
+- http://www.inc.com/laura-montini/infographic/10-books-every-aspiring-entrepreneur-must-read.html?cid=sf01002
+
 #### 50 Best Websites for Entrepreneurs
  - http://www.inc.com/drew-hendricks/50-best-websites-for-entrepreneurs.html
 
